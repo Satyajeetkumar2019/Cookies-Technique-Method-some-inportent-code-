@@ -1,1 +1,1 @@
-# Cookies-Technique-Method-some-inportent-code-
+# Cookies-Technique-Method-some-importent-code-
